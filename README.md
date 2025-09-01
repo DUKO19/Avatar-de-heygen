@@ -1,1 +1,0 @@
-# Avatar-de-heygen
